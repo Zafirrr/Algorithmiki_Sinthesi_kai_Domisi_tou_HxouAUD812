@@ -1,2 +1,2 @@
-# Algorithmiki_Sinthesi_kai_Domisi_tou_HxouAUD812
+# Algorithmiki_Sinthesi_kai_Domisi_tou_Hxou_AUD812
 Ζαφείρης Γεωργόπουλος-Χατζημανώλης ΤΧ2005041 ΕΡΓΑΣΙΑ EΞΑΜΗΝΟΥ
